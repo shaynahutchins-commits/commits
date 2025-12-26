@@ -13,7 +13,7 @@ I am a highly adaptable professional with a background in **Life and Relationshi
 * **Results-Oriented:** Whether it’s finishing a book or helping a client reach a breakthrough, I am driven by tangible outcomes.
 
 ### 📚 My Work
-* **Published Author:** [Optional: Insert Book Title or Genre here]
+* **Published Author:** "Rebuilding A Marriage" by Olivia Lee (Pen Name)
 * **Coaching:** Specialized in relationship dynamics and personal transformation.
 
 ---
@@ -21,5 +21,5 @@ I am a highly adaptable professional with a background in **Life and Relationshi
 ### 📫 Let's Connect!
 I am looking to pivot my skills into a new challenge ASAP. If you’re looking for a reliable, relatable, and high-energy team member, let’s talk!
 
-- **LinkedIn:** [Insert Link]
-- **Email:** [Insert Email]
+- **LinkedIn:** www.linkedin.com/in/shayna-hutchins5
+- **Email:** shaynahutchins@LoveRecoveredCo.com
